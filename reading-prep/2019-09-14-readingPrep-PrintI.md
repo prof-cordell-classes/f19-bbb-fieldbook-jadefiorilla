@@ -1,0 +1,9 @@
+# Reading Prep: Print I
+
+#### Jade Fiorilla
+
+## Questions or Observations
+
+1. I found it interesting that *The Atlantic* article actually responded to one of my questions inspired by the Stephen Fry video. While Fry emphasized how movable text allowed each print to be identical, he also made a passing comment about how the illumination was still done by hand. *The Atlantic* article explicitly states that the illuminations were in fact unique per item, offering a new job market, and juxtaposing uniform technology and unique artistry. After watching *The Machine That Made Us*, I realized that such visual contrast really provokes me. 
+2. The article published by *The Economist* used the phrase "digital fatigue" in the context of why letterpress printing is trending once more. It went on to explain that "once you have a website you want the real thing." This made me think about literary magazines, and how some of them chose to only have a digital presence. Perhaps most notably, *Tin House* recently published their last physical issue, stating prohibitve costs as their reason for stopping print. They state that they'll continue to publish on similar content on their website, however, and focus on publishing full-length books instead. Personally, I think the strength of literary magazines is in their printed form, which carries more authority. To me, online posts tend to feel like journalism, and are particularly unceremonial. 
+3. I wonder if some people would find 3D printing type sacriligeous. In *The Machine That Made Us*, Fry shows us the lengths that craftsmen had to go to in order to create each individual letter type; it almost feels like cheating the history and authenticity of the letterpress. At what point does 21st century technology impact letterpress printing so much so that a new form of print production has been invented? Will this form remain a hobby, or become standard convention? 
