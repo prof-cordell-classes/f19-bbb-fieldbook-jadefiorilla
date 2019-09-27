@@ -1,0 +1,9 @@
+# Reading Prep: Zines
+
+#### Jade Fiorilla
+
+## Questions or Observations
+
+1. I find it so interesting that people like Pagan Kennedy exist—the type of people who are so open to being open. Kennedy is the first to admit that her work is absolutely self-centered, yet she doesn't seem to relate that to being emotionally vulnerable. Instead, she talks about how it let her ficitonalize herself and grow confidence. It's funny that *The New York Magazine* article refers to social media, because after reading the Kennedy chapters, I was reminded of a YouTuber I watch pretty much religiously. The girl who runs the channel speaks says her mind in an often self-depricating manner, and is both awkward and charming at the same time. I can't help but wonder where the line is between being 100% authentic and simply becoming someone else. 
+2. Could there be a zine club on campus? I love the idea that, taken from *The New York Magazine*, the purpose of zines is to "make your own media." It's just that much more flexible and personal and crafty than slick magazine publications. Granted, I'm part of the e-board for Spectrum, the university's literary arts magazine, and I love litmags, but I feel such a calling towards zines after this week's reading. They seem as though their physicality, content, and audience can be so selective, so honest. And we do need a good dose of this culture on campus, we need a zine community I think.
+3. Kennedy makes the connection between zines and the "underground USA." Comics also have that subterranean connotation. Is it because the content tends to be more provokative? That they are mediums which contain subculture, carry a countercurrent, feel like a rebellion? Where does poetry fit in? Why is it typically less physical, less about medium and more about the actual words?
