@@ -1,0 +1,9 @@
+# Reading Prep: E-lit II
+
+#### Jade Fiorilla
+
+## Questions or Observations
+
+1. To begin with an observation, I am very grateful Leonard Flores takes the time to articulate the common fallacies of discussing innovative books/literature; I feel like I've spent this whole class trying to express my concern that new doesn't mean better, that old does not mean irrelevant. Although Flores focuses on electronic literature, I believe the fallacies are just as applicable between print and electronic mediums. It's reassuring for someone as romantic as I am to see that others also believe multiple "generations" of literature can coexist happily.
+2. In the introduction to *First Screening*, it's mentioned that "the destiny of digital writing usually remains the responsibility of the digital writers themselves." If this is pointing at the fact that print writers have an existing publishing industry that takes care of hardcover, paperback, and e-book transformations, then I agree that digital writers are currently in charge of maintaining the accessibility/readability of their work. However, this brings up the question of there being an equivalent publishing industry for digital writers. Freedom, and consequentially a lack of bureaucracy, is essential to the internet, yet I can't help but wonder if an archival-type company may crop up. 
+3. I found *With Those We Love Alive* to be very compelling. While it felt like a video game, as I was very concerned of dying the whole time, I appreciated how it wasn't over-stimulating. I loved that at the dry canal, when the text prompted the user to "watch" only words appeared. It felt very interactive, very immersive, without needing illustrations or moving pictures. 
