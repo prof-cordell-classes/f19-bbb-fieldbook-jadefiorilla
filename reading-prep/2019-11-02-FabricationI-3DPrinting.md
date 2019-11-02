@@ -1,0 +1,9 @@
+# Reading Prep: Fabrication I - 3D Printing
+
+#### Jade Fiorilla
+
+## Questions or Observations
+
+1. Fabrication seems to imply similiar behavior to electronic or mechanical tinkering which my generation has a habit of either romanticizing or patronizing. The "maker culture" discussed in *Between Bits and Atoms* feels like a distinctly 21st century rendition of nerds and artists working together; the desktop modeling and experimental creativity, while akin to tinkering, is unique. Suddenly two typically opposite fields (as Pierre-Louis explains) are able to interact and help each other push boundaries. It's funny—both science and art tend to play along that knife's edge of possible and impossible, so it's not actually surprising to see such collaboration. 
+2. I wonder how culture would differ if the history of fabrication (i.e. textile mills, labor, etc.) was part of basic education. Would we approach the material world with more respect if we understood how fabric is made, how metal is shaped, where plastic comes from? Would society be forced to value the working class? 
+3. It was interesting to consider objects as either "dialogic" or "mattering" in Garfinkel's essay. Both ideas stand on their own, and I do not automatically sympathize more with one over the other. I believe objects are interrelated with their physicality and the current culture, but I also see how an object may actually be the phenomena that creates the world as we see it today. One viewpoint is more anthropocentric than the other, but are objects purely a human concept? We don't often talk about nature (what would remain of the earth if humans did not exist) as objects, but as living things or living systems. 
